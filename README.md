@@ -1,1 +1,1 @@
-# https-buildyourself7day.blogspot.com
+denimanitoday.blogspot.com
